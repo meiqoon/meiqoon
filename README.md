@@ -15,5 +15,6 @@ I only cuddle with familliars and friends🩷
 ## 𝐀𝐫𝐭 𝐬𝐞𝐜𝐭𝐢𝐨𝐧 ❤︎
 <img width="680" height="510" alt="image" src="https://github.com/user-attachments/assets/0b14a55f-6fe4-4afb-a250-e671a3d09d5e" />
 <img width="544" height="680" alt="image" src="https://github.com/user-attachments/assets/0def0871-5a71-4047-97a4-ad683adb424e" />
+<img width="2000" height="2500" alt="image" src="https://github.com/user-attachments/assets/42623202-ecd0-4ea8-a91c-65597da12b95" />
 <img width="569" height="680" alt="image" src="https://github.com/user-attachments/assets/2b232aea-599f-47b4-a644-8d871d51aef8" />
 <img width="382" height="680" alt="image" src="https://github.com/user-attachments/assets/af6bc464-5e50-454b-99c4-fed15a4c8546" />
