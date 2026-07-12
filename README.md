@@ -1,7 +1,7 @@
 # 𝐀𝐝𝐝𝐢𝐭𝐢𝐨𝐧𝐚𝐥 𝐢𝐧𝐟𝐨𝐬
 <img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/08feee5e-210a-4c16-9351-54f5a7f1e662" />
 ​𝐓𝐡𝐞 𝐧𝐚𝐦𝐞'𝐬 𝐃𝐚𝐰𝐧 🩷<br>
-I'm 18 years old, so I preferably won't be befriending anyone under 14.<br>  
+I'm 18 years old, so I preferably won't be befriending anyone under 15.<br>  
 I'm Indonesian, but prefers to speak in English.<br>  
 Happily taken by my one and only🤎𝟹/𝟿/𝟸𝟶𝟸𝟺🤎<br>
 🤎Pink and brown enthusiast🩷<br>
