@@ -21,6 +21,7 @@ I only cuddle with familliars and friends🩷
 
 
 ## 𝐌𝐚𝐠𝐦𝐚 𝐀𝐫𝐭 𝐬𝐞𝐜𝐭𝐢𝐨𝐧 ❤︎
+<img width="1078" height="1493" alt="image" src="https://github.com/user-attachments/assets/5b363bef-6a75-4859-aacc-9d2573f362e8" />
 <img width="915" height="1080" alt="image" src="https://github.com/user-attachments/assets/7cf37cfd-e7f1-4b45-9e6a-a98119dda1cf" />
 <img width="680" height="1065" alt="image" src="https://github.com/user-attachments/assets/a5da25bf-2737-4b12-a2f6-d06780d32cbc" />
 <img width="512" height="346" alt="image" src="https://github.com/user-attachments/assets/77932d9d-b2dc-4ab6-aabd-099f9c4d4a66" />
